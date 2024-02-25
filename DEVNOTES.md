@@ -1,0 +1,1 @@
+https://www.flaticon.com/free-icon-font/object-union_9083737?page=1&position=38&term=object&origin=search&related_id=9083737
